@@ -1,4 +1,4 @@
-#  
+#  re:rangers x Scripts automatic offers the most advanced re:rangers x Script, with god mode and auto-heal. Perfect for dominating any match.
 
 
 
